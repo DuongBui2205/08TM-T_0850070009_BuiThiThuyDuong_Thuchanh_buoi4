@@ -1,2 +1,0 @@
-# 08TM-T_0850070009_BuiThiThuyDuong_Thuchanh_buoi4
-# 08TM-T_0850070009_BuiThiThuyDuong_Thuchanh_buoi4
